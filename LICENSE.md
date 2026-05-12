@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with smart MEV sniper bot | auto-buy + degen-coin-scanning, the #1 MEV sniper bot. Includes auto-buy and degen-coin-scanning for a faster and more profitable
 
 
 
